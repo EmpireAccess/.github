@@ -1,7 +1,7 @@
 # Who We Are
 ### 100% Local. 100% Fiber.
 
-Empire Access is one of the leading telecommunications companies serving residential and business customers in Upstate New York and Northern Pennsylvania with high-speed fiber internet, TV, phone, and security solutions. Empire Access has won multiple awards for our outstanding service, highlighting our commitment to our customers.
+[Empire Access](https://www.empireaccess.com/) is one of the leading telecommunications companies serving residential and business customers in Upstate New York and Northern Pennsylvania with high-speed fiber internet, TV, phone, and security solutions. Empire Access has won multiple awards for our outstanding service, highlighting our commitment to our customers.
 
 # Work With Us
 ### We are currently hiring!
